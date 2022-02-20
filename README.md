@@ -1,0 +1,1 @@
+# blooket hacks can be a vilation of blooket use. so use wisely and not so often. the creator of blooket has found so ways  to consficate the hacks and make them not work. so some hacks may or may not work. t is @playblooket creator disapbling
